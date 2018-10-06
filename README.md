@@ -1,4 +1,4 @@
-## Welcome to Math Problem Site
+## Welcome to Math Problem Site!
 
 This site is just for you guys! Questions will publish weekly and we will discuss them when we have time in the week. 
 
